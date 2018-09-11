@@ -7,3 +7,4 @@ I like basketball.
 This is a test.
 
 [Mizzou](https://missouri.edu/)
+![Basketball](basketball.jpg)

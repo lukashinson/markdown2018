@@ -1,11 +1,24 @@
 ## Lukas Hinson
 
-I like basketball.
+#### I want to be a big twitch streamer.
 
-[KC Chiefs](https://www.chiefs.com/)
+**[My twitch channel](https://www.twitch.tv/lr_zoop)**
 
-This is a test.
+*I want to be a pro gamer.*
 
 [Mizzou](https://missouri.edu/)
 ![Basketball](basketball.jpg)
-![Chiefs Pic](https://static.clubs.nfl.com/image/private/t_photogallery_2x/f_auto/chiefs/qlcbeni1iikjdg3ihpz5.jpg)
+[Chiefs Pic](https://www.chiefs.com/photos/photo-gallery-chiefs-vs-chargers-pregame#36e9440d-34b0-4ac2-b706-1d585666d93c)
+
+I really want to build a pc. I am going to build one in the coming months.
+It will be used for all kinds of things.
+
+~~Go follow my twitch~~
+
+Favorite games
+
+1.) Fortnite
+
+2.) Cod
+
+3.) League of Legends
